@@ -1,3 +1,3 @@
-![Clockwork_August_5,_2016](https://github.com/user-attachments/assets/7906e069-8932-403c-9e1c-a4602c318897)
+![Clockwork_August_5,_2016](https://github.com/user-attachments/assets/916e9d7b-7c3a-4062-a157-7fd086fc8950)
 
- <body></body>05:14 PM[⁺*･☾ Maya ☽･*⁺(hates his life)] Keep kissing Boys and go to gay
+<body></body>i love my friends (＾ω＾)
